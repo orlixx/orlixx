@@ -1,4 +1,3 @@
-awesoem art drawn by cool ass ppl
-[**send me stuff**](https://xalicos.straw.page)
-![](https://litter.catbox.moe/lmo0moccej0o2fqx.png) me and [**kaz**](https://github.com/plqnetz) and his 2 sonas
-![](https://litter.catbox.moe/03yya7mhn8ffsxui.png)
+![](https://files.catbox.moe/9v81pj.jpeg)
+![](https://files.catbox.moe/na01f8.jpeg)
+![](https://files.catbox.moe/rlh8ok.jpeg)
